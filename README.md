@@ -1,3 +1,0 @@
-# sdm
-# bkjbadc
-# gduksvgsiudvglsuv mdbbc
